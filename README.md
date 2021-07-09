@@ -1,5 +1,5 @@
 Yahoo, I’m Chikin 👋 
-- known for Destiny 2 hacks
+- known for Destiny 2
 - Chikin#0001
 - chikinwanguwu2@gmail.com
 - I play a lot of osu!
